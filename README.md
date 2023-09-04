@@ -16,3 +16,4 @@ Right now, I have a few things I want to do:
   - what can I learn from this?
     - how to use git. how to code again. learning cs fundamentals. who knows what
     - what matters is that I really practice documentation. this is FUNDAMENTAL
+    - i also want to do this daily, because it is important that I am consistent. I guess it's important that I don't have to be perfect, but ultimately, I want to be documenting this
