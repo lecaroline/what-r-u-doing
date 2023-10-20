@@ -29,4 +29,25 @@ Oh wow, it's been quite some time since I've logged on. I'm reading what I initi
 
 Anyway, I want to practice consistency and root for myself :)
 
+Update (8:49pm, 10/19/2023):
+Oh wow, it's been almost a month! Haha, this is embarrassing but I think... I'm okay with being not on time. What does time even mean?
+
+I still didn't touch this part yet, although I don't feel as much resistance. I think it's pretty universal that no one likes change, and that change is very uncomfortable. I know there are a lot of areas in my life where I decided that change isn't necessary right now.
+
+For example, I think about my romantic life. I am very okay with being single right now, especially since I'm putting more effort into doing things that matter to me, like reading, exercising, journaling, and spending more time with myself. I think my view on romantic relationships has changed significantly too, and it feels more healthy to me. Meaning that I don't place my worth on whether someone finds me attractive; I care that I find myself attractive regardless of how someone may view me. This shift is a little challenging because I know that it is important for me to have good relationships with others, and so I can easily say that I don't have a lot of experience in this area in my life. However, there isn't anything wrong with this, just different.
+
+I can also just say that I haven't found anyone right too, and that it isn't so important.
+
+What's most important to me is how I feel about myself and how I can push myself forward toward my goals and endeavors. 
+
+Writing this, I see what's most important to me, and that the time I take to pause (hehe) is necessary for reflection. However! I want to shift my focus and attention onto what's important to me like seeing myself in a positive light, and that by doing my resume, and practicing to believe in myself is key to living a fulfilling life that's exciting for me. 
+
+I finished university a couple of months ago, and it's a step toward independence. I can apply for jobs freely without having to worry about finishing my degree, because I am done. 
+
+Yes, transitions are hard, but I have a lot of good things going well in my life right now, such as the friends I have in my life, my family, and the support that I have!
+
+How beautiful this is, and I don't need a romantic partner to complete me. 
+
+The fact that I can freely write this, and have 0 viewers see this is wonderful. I am practicing to open my thoughts because I have a habit of being private and not being known because sky_fierra-everything_is_embarrassing.mp3. Hahahaha.
+
 
